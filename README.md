@@ -4,4 +4,6 @@ Meu nome é Geovanna fernandes, sou aluna do IFTO, faço o curso tecnico de info
 
 ## redes sociais
 https://instagram.com/ggeovanna_fernandes?utm_source=qr&igshid=ZDc4ODBmNjlmNQ%3D%3D
+
+
 https://twitter.com/Geovannnaafe?t=rpJqr4qa93YRRVAqXccsUQ&s=08
